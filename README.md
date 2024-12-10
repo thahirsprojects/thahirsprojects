@@ -18,7 +18,7 @@ I’m eager to collaborate on:
 
 ## 📫 How to Reach Me
 Feel free to connect with me:
-- **Instagram:** https://www.instagram.com/thahir.dart/ 🔗
+- **Instagram:** https://www.instagram.com/thxhir.in/ 🔗
 
 ## 😄 Pronouns
 - He/Him
