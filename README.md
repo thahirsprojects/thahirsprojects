@@ -10,11 +10,11 @@ I'm deeply interested in:
 
 ## 🌱 Currently Learning
 I'm currently focused on:
-- **Flutter** 🐦
+- **Java** 
 
 ## 💞️ Looking to Collaborate
 I’m eager to collaborate on:
-- **Innovative cross-platform applications** 🌍
+- **Innovative applications** 🌍
 
 ## 📫 How to Reach Me
 Feel free to connect with me:
