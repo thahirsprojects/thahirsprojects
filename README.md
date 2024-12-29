@@ -10,7 +10,7 @@ I'm deeply interested in:
 
 ## 🌱 Currently Learning
 I'm currently focused on:
-- **Java** 
+- **Java** ☕
 
 ## 💞️ Looking to Collaborate
 I’m eager to collaborate on:
